@@ -42,28 +42,52 @@ I Built and Tried:
 
   
 Problem, Solution, Repeat: A Modern Tragedy
+
 Curriculum of Eternal Confusion
+
 Day After Day: The Problem That Wouldn’t Die
+
 Groundhog Day: Math Edition
+
 Identify the Problem: A Love Story
+
 The Neverending Problem feat. The Solution Cameo
+
 The Epic Saga of Problem and Solution: Volume 1 of 1,000
+
 Dualities in Infinite Loop 2025
+
 Symphony of Redundancy No. 1
+
 Dialectic of Problem and Solution, Untitled
+
 Repetition as Resolution: A Study in Persistence
+
 Cycles of Inquiry and Futility
+
 Minimalist Curriculum: Echoes of an Unfinished Thought
+
 Epistemological Feedback: An Iterative Reflection on Pedagogical Cycles
+
 The Recursive Mind: Explorations in Cognitive Redundancy
+
 Didactic Echoes: A Manifesto of Problem-Solution Paradigms
+
 Curriculum in Crisis: A Meditation on Instructional Entropy
+
 The Sisyphus Curriculum: An Allegory of Perpetual Problem Framing
+
 Ontological Loops: The Architecture of Unresolved Learning
+
 Pedagogical Refrains in an Age of Algorithmic Disillusionment
+
 An Iterative Ontology of Problem Spaces in Didactic Temporalities
+
 Recursive Optimism: A Semiotic Investigation into AIs Failure to Converge
+
 The Semiotics of Futility: An Inquiry into Algorithmic Misunderstanding
+
 Fractured Learning Horizons: A Study in Machine Cognitive Decay
+
 Postmodern Curricula: Deconstructing the Linear Progression of Knowledge Acquisition
 
